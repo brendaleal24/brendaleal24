@@ -1,0 +1,5 @@
+-  Hi, I’m @brendaleal24-  Hi, I’m @brendaleal24
+- estudo no tiradentes
+- atualmente estou desenvolvendo um projeto nessa plataforma 
+- @brenda.dias.leal@escola.pr.gov.br
+-  ![](https://media1.tenor.com/m/9TKxcyxQQxIAAAAd/cat-dance-dancing-cat.gif)
